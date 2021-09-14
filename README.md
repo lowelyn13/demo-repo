@@ -1,3 +1,3 @@
 # Demo
 
-You can do it!
+You can do it, Loise!
